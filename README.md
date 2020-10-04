@@ -1,1 +1,1 @@
-# Smita-s-Trex
+# Smita's trex
